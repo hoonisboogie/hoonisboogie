@@ -13,3 +13,6 @@
 <p align="center">
   <a href="https://rentry.co/thedrunkenclam" target="_blank">VERY SERIOUS RENTRY</a>
 </p>
+<p align="center">
+  <img src="https://file.garden/ZRW6HfKULjLI59VJ/IMG_5690.jpg">
+</p>
