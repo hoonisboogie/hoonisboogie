@@ -3,11 +3,12 @@
 </p>
   <strong><h2 align="center">HOONIS :3</h2></strong>
   <p align="center">
-   17 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
-  <br>
-  <a href="https://hoonisboogie.github.io/">READ MY ABT PLOXX!!!</a>
-  <br>
+     17 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
+    <br>
+    <a href="https://hoonisboogie.github.io/">READ MY ABT PLOXX!!!</a>
+  </p>
   <hr>
+<p align="center">
   <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://confettiguts.gay/webmaster/husbando/darly/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
 </p>
 <p align="center">
