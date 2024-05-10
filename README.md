@@ -7,7 +7,7 @@
   <br>
   I LOVE MAKING PEOPLE MAD ON THE INTERNET WITH MY JOYOUS FUN AND WHIMSY. 
   <br>
-  <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://confettiguts.gay/husbando/darly/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
+  <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://confettiguts.gay/webmaster/husbando/darly/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
 </p>
 <p align="center">
   <a href="https://rentry.co/thedrunkenclam" target="_blank">VERY SERIOUS RENTRY</a>
