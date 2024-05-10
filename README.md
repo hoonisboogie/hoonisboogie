@@ -5,7 +5,7 @@
   <p align="center">
    17 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
   <br>
-  I LOVE MAKING PEOPLE MAD ON THE INTERNET WITH MY JOYOUS FUN AND WHIMSY. 
+  <a href="https://hoonisboogie.github.io/">READ MY ABT PLOXX!!!</a>
   <br>
   <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://confettiguts.gay/webmaster/husbando/darly/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
 </p>
