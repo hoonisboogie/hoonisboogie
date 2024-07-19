@@ -3,7 +3,7 @@
 </p>
   <strong><h2 align="center">HOONIS :3</h2></strong>
   <p align="center">
-     17 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
+     18 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
     <br>
     <a href="https://hoonisboogie.github.io/" target="_blank">READ MY ABT PLOXX!!!</a> SIGN MY <a href="https://hoonisboogie.github.io/guestbook/" target="_blank">GUESTBOOK</a> TOO <3
   </p>
