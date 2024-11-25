@@ -9,7 +9,7 @@
   </p>
   <hr>
 <p align="center">
-  <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://confettiguts.gay/webmaster/husbando/darly/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
+  <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://darly.waifu.ist/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
   <br><br>
   MY <a href="https://boxwife.straw.page/">STRAWPAGE</a> IS PRETTY MUCH EXACTLY THE SAME AS MY ABT PAGE BUT EXCLUSIVELY SERVES AS A WAY FOR PEOPLE TO SEND ME ART OF DARLY BOXMAN/ASKS OR WHTV. YOU SHOULD DO THAT BTW
 </p>
@@ -21,7 +21,4 @@
 </p>
 <p align="center">
   IF YOU LIKE TADC BUT ARE SOMEHOW COMPLETELY UNAWARE OF GOOSE'S OTHER PROJECTS, I PROBABLY DO NOT LIKE YOU. READ HOARDE OF HEROES OR WATCH PINK CITY. PLEASE. LITTLE RUNMO EVEN
-</p>
-<p align="center">
-   THOSE EWHO ARE DARLY BOXMAN (INTROJECT / SERIOUS FICTIONKINS / OTHERWISE)  AND 17+  PLEASE  INTERACT (。・ω・。) (JOKING) (HALF JOKING)
 </p>
