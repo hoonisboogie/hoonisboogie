@@ -4,10 +4,12 @@
   <strong><h2 align="center">HOONIS :3</h2></strong>
   <p align="center">
      18 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
-    <br>
+    <br><br>
     I DON'T TAKE THIS GAME VERY SERIOUSLY #SORRY JUST DNI IF YOU'RE GONNA THROW A PISSY FIT OVER SOMEONE ELSE'S IDENTITY OR YOU'RE LIKE LOLISHO/INCEST/ETC. YOU PROBABLY STINK IF YOU SELF ID AS PROSHIP
-    <br>
+    <br><br>
     SERIOUS SPIRITUAL FICTIONKIN I DO NOT PLAY ABOUT MY MEDIA MEMORIES. KIN FOR FUN CAN INTERACT IF IT'S NOT TO MEAN GIRL BULLY ME
+    <br><br>
+    I DO NOT SIGN ATABOOKS BECAUSE OF THE IP LOGGER. IF SOMEONE'S SIGNING OFF AS ME... IT ISN'T ME! >.>
   </p>
   <hr>
 <p align="center">
