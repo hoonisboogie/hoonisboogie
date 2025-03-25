@@ -14,6 +14,8 @@
   <hr>
 <p align="center">
   <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://darly.waifu.ist/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
+  <br><br>
+  <a href="https://hoonisboogie.github.io/guestbook/">LE GUESTBOOK</a>
 </p>
 <p align="center">
   <a href="https://rentry.co/thedrunkenclam" target="_blank">VERY SERIOUS RENTRY</a>
