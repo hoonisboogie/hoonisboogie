@@ -25,5 +25,5 @@
 </p>
 <br>
 <p align="center">
-  <img src="https://i.postimg.cc/9Q9P8BgL/GAGAGAGA.png">
+  <img src="https://i.postimg.cc/NGVr3HHS/GAGAGAGA.png">
 </p>
