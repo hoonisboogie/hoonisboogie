@@ -1,29 +1,27 @@
-<p align="center">
-  <img src="https://file.garden/ZRW6HfKULjLI59VJ/CapriCheer.png">
+<p>
+  I'M A TRANSFEMININE BIGENDER XENIC FEMME TURIGIRL GAYBIAN OBJECTUM FICTOSEXUAL ALTERHUMAN AND I'M MADLY IN LOVE WITH ALL FOUR OF MY PARTNERS
+  <br>
+  I'M SOULBONDED TO DARLY BOXMAN AND RODGER (DANDY'S WORLD)
+  <br>
+  I'M A SERIOUS SPIRITUAL FICTIONKIN AND I DO NOT PLAY ABOUT MY MEDIAS
+  <br>
+  I WANT TO EAT SCOOPS OF LAUNDRY DETERGENT IN A ROMANTIC WAY AND I THINK WASHERS, DRYERS, MAGNIFYING GLASSES AND CRTS ARE VERY BEAUTIFUL
+  <br>
+  I AM A WOMAN. I AM GAY. I HAVE SEVERE DEPRESSION. I THINK KILLING PEOPLE IS BAD.
 </p>
-  <strong><h2 align="center">HOONIS :3</h2></strong>
-  <p align="center">
-     18 y/o (July 19) ☆ she/her ☆ Darly Boxman's No. 1 fan & girlfriend do not tRY TO DETHRONE ME
-    <br><br>
-    I DON'T TAKE THIS GAME VERY SERIOUSLY #SORRY JUST DNI IF YOU'RE GONNA THROW A PISSY FIT OVER SOMEONE ELSE'S IDENTITY OR YOU'RE LIKE LOLISHO/INCEST/ETC. YOU PROBABLY STINK IF YOU SELF ID AS PROSHIP
-    <br><br>
-    SERIOUS SPIRITUAL FICTIONKIN I DO NOT PLAY ABOUT MY MEDIA MEMORIES. KIN FOR FUN CAN INTERACT IF IT'S NOT TO MEAN GIRL BULLY ME
-    <br><br>
-    I DO NOT SIGN ATABOOKS BECAUSE OF THE IP LOGGER. IF SOMEONE'S SIGNING OFF AS ME... IT ISN'T ME! >.>
-  </p>
-  <hr>
-<p align="center">
-  <a href="https://confettiguts.gay/">MY PERSONAL WEBBY SITE</a> & <a href="https://darly.waifu.ist/">MY SHRINE FOR MY LOVELY 2D BOYFRIEND OF ~3 YEARS</a>
-  <br><br>
-  <a href="https://hoonisboogie.github.io/guestbook/">LE GUESTBOOK</a>
+<br><br>
+<p>
+  <img src="https://i.postimg.cc/26yHvWfs/how-i-keep-the-rent-low-in-my-neighbourhood-meme.gif">
 </p>
-<p align="center">
-  <a href="https://rentry.co/thedrunkenclam" target="_blank">VERY SERIOUS RENTRY</a>
+<br><br>
+<p>
+  I DO NOT TAKE HORSE GAME VERY SERIOUSLY. FUCK OFF IF YOU'RE LOLISHO/INCEST/ETC. YOU PROBABLY STINK IF YOU ID AS PROSHIP. <a href="https://rentry.co/thedrunkenclam">CHECK THIS RENTRY OUT THOUGH</a>
 </p>
-<p align="center">
+<hr>
+<p>
   <img src="https://file.garden/ZRW6HfKULjLI59VJ/IMG_5690.jpg">
 </p>
 <br>
-<p align="center">
+<p>
   <img src="https://i.postimg.cc/NGVr3HHS/GAGAGAGA.png">
 </p>
