@@ -9,14 +9,14 @@
   <br>
   I AM A WOMAN. I AM GAY. I HAVE SEVERE DEPRESSION. I THINK KILLING PEOPLE IS BAD.
 </p>
-<br>
+<br><br>
 <p>
   <img src="https://i.postimg.cc/26yHvWfs/how-i-keep-the-rent-low-in-my-neighbourhood-meme.gif">
 </p>
-<br>
+<br><br>
 <p>
   I DO NOT TAKE HORSE GAME VERY SERIOUSLY. FUCK OFF IF YOU'RE LOLISHO/INCEST/ETC. YOU PROBABLY STINK IF YOU ID AS PROSHIP. <a href="https://rentry.co/thedrunkenclam">CHECK THIS RENTRY OUT THOUGH</a>
-  <br>
+  <br><br>
   I DON'T SIGN ATABOOKS THEY LOG YOUR IP
 </p>
 <hr>
